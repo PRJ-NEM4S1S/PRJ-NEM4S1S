@@ -4,7 +4,7 @@
 </p>
 
 <!-- Name & Info -->
-<h3 align="center">𝐑𝐀𝐌𝐀𝐓𝐓𝐑𝐀.&color=5f3e69</h3>
+<h3 align="center">𝐑𝐀𝐌𝐀𝐓𝐓𝐑𝐀.</h3>
 <p align="center"> Depending on my mood I can be friendly, I type formally I do not mean it aggressively. I would prefer you're friends with me to be near me or 'cuddling', crowning is fine. I will not apologize for being intimidating I prefer keeping my distance unless we're close or you are close with the main. </p>
 <p align="center"> He/It | DNI -16 | ♎︎︎ | INTJ | Do not copy my skins nor take heavy inspo. </p>
 

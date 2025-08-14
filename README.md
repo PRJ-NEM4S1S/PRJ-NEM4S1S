@@ -6,7 +6,7 @@
 <!-- Name & Info -->
 <h3 align="center">𝐑𝐀𝐌𝐀𝐓𝐓𝐑𝐀.</h3>
 <p align="center"> Depending on my mood I can be friendly, I type formally I do not mean it aggressively. I would prefer you're friends with me to be near me, crowning is fine. I'm not sorry for being intimidating I prefer keeping my distance unless we're really close. </p>
-<p align="center"> He;It / DNI -16 / ♎︎︎ / INTJ / DO NOT COPY MY SKINS NOR TAKE HEAVY INSPO. </p>
+<p align="center"> He/It | DNI -16 | ♎︎︎ | INTJ | DO NOT COPY MY SKINS NOR TAKE HEAVY INSPO. </p>
 
 <!-- Profile Views -->
 <p align="center">
